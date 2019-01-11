@@ -6,4 +6,5 @@ L'escargot était prêt pour partir en vacances, il avait sur lui:
 - son passeport
 - un peu d'argent
 
-Il sortit de chez lui mais malheureusement, il oublia ses __clés__
+Il sortit de chez lui mais malheureusement, il oublia ses __clés__.
+blabla
