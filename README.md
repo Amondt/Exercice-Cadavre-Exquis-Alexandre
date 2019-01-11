@@ -18,4 +18,5 @@ L'escargot sur son bulldozer pris la direction du sud. Il revait de :
 2. de jolies filles en bikini.  
 Dans sa tête, une seule destination pour réaliser ses rêves : **SAINT-TROPEZ**
 
-
+L'escargot decida emprunter les chemin du **glamour**, de la __gloire__ et la beaute.
+Le grand flot bleu.
