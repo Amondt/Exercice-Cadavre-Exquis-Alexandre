@@ -20,3 +20,9 @@ Dans sa tête, une seule destination pour réaliser ses rêves : **SAINT-TROPEZ*
 
 L'escargot decida emprunter les chemin du **glamour**, de la __gloire__ et la beaute.
 Le grand flot bleu.
+
+Aujourd'hui l'escargot tiens un bar a **SAINT-TROPEZ**, il mange du fromage a la petite cuillere et bois des cocktels a base 
+
+de coco. 
+
+Son voisin attend encore son bulldozer.
