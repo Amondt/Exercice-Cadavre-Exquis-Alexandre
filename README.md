@@ -12,3 +12,10 @@ blabla
 "**Marceeeeeel**" cria l'escargot à son voisin, "**Puis-je t'emprunter ton bulldozer? **" 
 D'un mouvement souple et gracieux, l'escargot attrapa le trousseau de clefs lancé par Marcel.
 "*VROUM-VROUM*" fit l'engin au démarrage.
+
+L'escargot sur son bulldozer pris la direction du sud. Il revait de :
+1. plage de sable chaud
+2. de jolies filles en bikini.  
+Dans sa tête, une seule destination pour réaliser ses rêves : **SAINT-TROPEZ**
+
+
